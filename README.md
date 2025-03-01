@@ -1,1 +1,1 @@
-# qj-mi-kura
+maika ti
